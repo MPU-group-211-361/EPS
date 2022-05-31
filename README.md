@@ -1,1 +1,1 @@
-# EPS
+# Effective Presentation Skills
